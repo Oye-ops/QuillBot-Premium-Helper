@@ -1,3 +1,4 @@
+![IMG_9678](https://github.com/user-attachments/assets/454a4667-8548-415a-ae96-91cb6e94699c)
 # BRAND NEW 2023 version QuillBot Premium Crack (Chrome Extension)!
 
 ## This extension has been rewritten in 2023 june
